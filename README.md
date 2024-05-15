@@ -1,4 +1,10 @@
-### Hi there 👋
+**Meu nome e Guilherme leonardo
+
+aluno da escola EE VER ALAY JOSE CORREA✌
+
+tenho 16 ano
+
+pretendo usar essa plataforma para postar meus trabalhos
 
 <!--
 **GUIzin013/GUIzin013** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
